@@ -8,6 +8,6 @@ also has a bypasser that bypasses stupid pay walls, just enter the information y
 social media, emails, passwords, information on certain purchases, online games they play etc etc.
 
 Socials: 
-Discord: Hype#0005
+Discord: impwned#0001
 (P.S. If there are any issues or problems with running the file, certain features, or its not working all together. Please, contact me through my discord. 
 I will always write back if I have the time.)
